@@ -1,2 +1,2 @@
 nexzo
-like to play game
+like to play war game
